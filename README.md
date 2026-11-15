@@ -6,7 +6,7 @@
 
 <p>no dni, just dont be weird..</p>
 
-<img src="https://media1.tenor.com/m/NvDGGl6fqIUAAAAC/twilight-edward-cullen.gif" width="900" alt="Edward Cullen">
+<img src="https://media1.tenor.com/m/NvDGGl6fqIUAAAAC/twilight-edward-cullen.gif" width="700" alt="Edward Cullen">
 
 <br><br>
 
