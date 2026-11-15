@@ -1,16 +1,23 @@
-## Hi there 👋
+<div align="center">
 
-<!--
-**cullenlover/cullenlover** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<pre>
+      _ ^ _ <//
+</pre>
 
-Here are some ideas to get you started:
+<p>no dni, just dont be weird..</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img src="https://media1.tenor.com/m/NvDGGl6fqIUAAAAC/twilight-edward-cullen.gif" width="600" alt="Edward Cullen">
+
+<br><br>
+
+16 y.o &nbsp; • &nbsp; C+H ALWAYS,,, &nbsp; • &nbsp; w2i if pony sleep
+
+<br><br>
+
+if u into shameless, interact with me
+
+<br><br>
+
+i have social anxiety, please interact carefully ♡
+
+</div>
