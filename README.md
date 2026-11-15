@@ -14,7 +14,7 @@
 
 <br><br>
 
-if u into shameless, interact with me
+if u into twilight, interact with me
 
 <br><br>
 
